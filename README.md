@@ -28,5 +28,5 @@ I study Systems Analysis and Development (ADS). I worked as a fire brigade membe
 
 ## Contact
 
-- LinkedIn: [linkedin.com/in/adriel-104563303](https://www.linkedin.com/in/adriel-104563303)
+- LinkedIn: [linkedin.com/in/adriel-william-xavier](https://www.linkedin.com/in/adriel-william-xavier)
 - Email: adrielwilliamxa@gmail.com
